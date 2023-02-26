@@ -1,6 +1,6 @@
 <h4 align="left">for contact</h4>
 
- - Discord: [yeahyeahyeah#3999](https://discord.com/users/465331205047320577)  
+ - Discord: [mayıs#0100](https://discord.com/users/1008432166310510663)  
  
  
     ![Profile views](https://gpvc.arturio.dev/Arda-1337)
